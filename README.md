@@ -9,4 +9,4 @@ Stay consistent, stay thinking, consistently iterate.. Godspeed.
 
 Start Here:
 
-https://www.loom.com/share/d14f7b530c1c4bab8a6f41f84f54fc67?sid=3fd77602-ed70-42aa-8044-5c54803e62fa
+https://www.loom.com/share/21b53bf9c7c248948622a2f270f3743a?sid=ccb7a394-4ff6-49ea-8da5-2f542aae81a9
